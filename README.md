@@ -3,9 +3,8 @@
 
 桃红色界永久久域名HttpS://taohtv.com 
 
-⭐️ 👉地址一：HttpS : //taoh772.com
-
-⭐️ 👉备用地址：HttpS : //taoh769.com
+⭐️ 👉地址一：HttpS : //taoh779.com
+⭐️ 👉备用地址：HttpS : //taoh782.com
 
 ！️！️长按复制到浏览器里面访问以上网址！️！️ 
 
